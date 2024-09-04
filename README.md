@@ -43,6 +43,15 @@ Merchandise Mart - 222 W Merchandise Mart Plaza, Chicago, IL 60654
 
 https://app.smartsheet.com/b/form/ed124d1988274195825a4fa542726b98
 
+## Cardano
+Saturday, September 14
+
+9:00 AM - 5:00 PM
+
+Second Shift Coworking and Offices - 3432 W Diversey Ave floor 2, Chicago, IL 60647
+
+https://lu.ma/ifu0yx2y
+
 ## Tech Related
 ### Chicago Startup & Tech Mixer
 
